@@ -27,3 +27,15 @@
 
 赶快选择我们的老号，让您的推广之路更加畅通！
 
+
+# 推荐文章
+
+- [最新十佳国内外全球实卡接码、境外号码租赁平台实测推荐(2024年 11 月 ）](https://github.com/liudaliuda01/pingce)
+- [如何简单便捷的批量获取Telegram/纸飞机/电报成品号](https://github.com/liudaliuda01/chat)
+- [如何在不泄密的情况下获取一个境外手机号](https://github.com/liudaliuda01/haoma)
+- [如何低价获得一个高质量的Twitter账号](https://github.com/liudaliuda01/Twitter)
+- [国内如何安全注册使用 YouTube 账号](https://github.com/liudaliuda01/YouTube)
+- [任意购发卡网：您的虚拟商品一站式购物平台](https://github.com/liudaliuda01/anyshop)
+- [2024 年国内外最新全球实卡接码 接码率高的短信接码平台](https://github.com/liudaliuda01/lightsms)
+- [闪电接码平台：实现账号注册、短信群发、虚拟号码使用的隐私、高效、便捷之道](https://github.com/liudaliuda01/jiema)
+- [全球实卡接码：免费接验证码、租用手机号、虚拟手机号及免费打电话!](https://github.com/liudaliuda01/lightsms.pro)
